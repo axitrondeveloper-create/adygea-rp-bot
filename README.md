@@ -1,0 +1,2 @@
+# adygea-rp-bot
+xffghb
